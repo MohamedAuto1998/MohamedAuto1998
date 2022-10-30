@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MohamedAuto1998
+- 👋 Hi, I’m Cherrad Mohamed Elmahdi
 - 👀 I’m interested in electronics and coding
 - 🌱 I’m currently learning electronics
 - 💞️ I’m looking to collaborate on ...
